@@ -26,3 +26,5 @@ To serve
 11. To serve, sprinkle each pancake with freshly squeezed lemon juice and caster sugar, fold in half, then in half again to form triangles, or else simply roll them up. Serve sprinkled with a little more sugar and lemon juice and extra sections of lemon.
 
 ## Tips
+- Delicious with nutella and cold milk!
+
