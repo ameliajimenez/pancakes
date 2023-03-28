@@ -24,3 +24,5 @@ To serve
 9. Flip the pancake over with a pan slice or palette knife – the other side will need a few seconds only – then simply slide it out of the pan onto a plate.
 10. Stack the pancakes as you make them between sheets of greaseproof paper on a plate fitted over simmering water, to keep them warm while you make the rest.
 11. To serve, sprinkle each pancake with freshly squeezed lemon juice and caster sugar, fold in half, then in half again to form triangles, or else simply roll them up. Serve sprinkled with a little more sugar and lemon juice and extra sections of lemon.
+
+## Tips
